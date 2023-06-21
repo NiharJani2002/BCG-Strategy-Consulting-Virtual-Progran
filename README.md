@@ -11,3 +11,5 @@ In this virtual experience program, you will gain enviable insight into what itâ
 After finishing each module, youâ€™ll be provided with real work sample answers from our leaders and you can see how top-tier consultants and our designers would have tackled each task, so that you can learn from their approach.
 
 Disclaimer: Participation in this virtual experience program is not an employment relationship with BCG. It is our policy that you do not list your completion of this program as work or internship experience on your CV, LinkedIn, or any other social media or professional platform. For guidance on how to accurately represent your experience, review the Forage CV referencing policy.
+
+*Work In *Task 2 and Task 7* Are Quizes Only*
